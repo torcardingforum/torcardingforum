@@ -8,6 +8,7 @@
 
 Here is list of Best cc shops 2024 we will be upgrading daily 
 
+
 1-  https://torcardingforum.com/threads/rescator-cn-best-and-oldest-cc-cvv-dump-shop.54283/  
 2-  https://torcardingforum.com/threads/crazy-shop-online-store-cc-cvv2-the-best-credit-cards-at-a-low-price.65336/page-122#post-146812
 3-  https://torcardingforum.com/threads/the-matrix-cc-store.68993/
